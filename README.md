@@ -1,2 +1,2 @@
 # MidnightReeds.github.io
-The place for my music, podcasts, stories and other thoughts.
+Eventually, this will be the place for my music, podcasts, stories and other thoughts.
