@@ -1,3 +1,6 @@
+![Midnight Reeds small](https://user-images.githubusercontent.com/88132653/129440598-4c812493-7f94-4759-9925-63dd7351c819.png)
+
+  
 #### Hello and welcome!
 
 My name is Logan, and you have found the site I have set up to share my projects. Here I will share the podcasts, music, creative writing and sometimes just some random thoughts I am working on.
